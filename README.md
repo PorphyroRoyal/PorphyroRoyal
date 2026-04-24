@@ -17,7 +17,7 @@ $\color{rgb(45, 45, 139)}{\textsf{w}}\color{rgb(88, 67, 154)}{\textsf{i}}\color{
 $\color{rgb(147, 109, 180)}{\textsf{ⓥ}}$ ietnames𝓮ㅤ🍨ㅤ 𓈒݂১ ̣̣♡
 </p>
 <p align=center>
-͜𓈒 ࣪ ᧙ㅤㅤㅤintwc, i'm an adult, dni if uncomfyㅤㅤ ۪ Ⳋ᧙
+͜𓈒 ࣪ ᧙ㅤㅤㅤintwc, i'm an adult, dni if discomfy/under 16ㅤㅤ ۪ Ⳋ᧙
 </p>
 
 <p align=center>
