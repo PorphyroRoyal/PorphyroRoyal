@@ -1,28 +1,25 @@
-<p align="center">
-$\color{rgb(242, 221, 89)}{\textsf{c}}\color{rgb(242, 206, 83)}{\textsf{h}}\color{rgb(242, 174, 71)}{\textsf{e}}\color{rgb(rgba(242, 151, 65))}{\textsf{e}}\color{rgb(232, 116, 53)}{\textsf{s}}\color{rgb(223, 88, 42)}{\textsf{e}}\color{rgb(192, 61, 32)}{\textsf{c}}\color{rgb(133, 46, 26)}{\textsf{a}}\color{rgb(79, 31, 20)}{\textsf{k}}\color{rgb(60, 26, 18)}{\textsf{e}}$
+<p align=center>
+<img width="550" height="30" alt="Image" src=https://github.com/user-attachments/assets/2d102cf6-92b2-49ae-9d0c-975b512801ca>
 </p>
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/09d8ca9a-b685-433c-96ff-910d26f66e5a" width="800" alt="Alt Text">
-</p>
-<p align="center">
-$\color{rgb(242, 221, 89)}{\textsf{a}}\color{rgb(242, 206, 83)}{\textsf{r}}\color{rgb(242, 174, 71)}{\textsf{t}}$ $\color{rgb(242, 151, 65)}{\textsf{c}}\color{rgb(232, 116, 53)}{\textsf{r}}\color{rgb(223, 88, 42)}{\textsf{e}}\color{rgb(192, 61, 32)}{\textsf{d}}\color{rgb(133, 46, 26)}{\textsf{i}}\color{rgb(79, 31, 20)}{\textsf{t}}\color{rgb(60, 26, 18)}{\textsf{s:}}$ $\color{rgb(60, 26, 18)}{\textsf{rgnvazl}}$
-</p>
-
-<p align="center">
-˚𓈒 ㅤㅤ𓋭ㅤㅤ୨ㅤㅤlexiㅤouㅤ $\color{rgb(242, 221, 89)}{\textsf{leon}}$
-</p>
-<p align="center">
-  ݁𓈒 ۫ᣟ݂𓏺ㅤㅤ $\color{rgb(223, 88, 42)}{\textsf{❤︎}}$ㅤㅤㅤ(＞人＜;)
+<p align=center>
+$\color{rgb(45, 45, 139)}{\textsf{w}}\color{rgb(88, 67, 154)}{\textsf{i}}\color{rgb(rgba(147, 109, 180))}{\textsf{n}}$ $\color{rgb(193, 148, 217)}{\textsf{b}}\color{rgb(rgba(218, 164, 218)}{\textsf{r}}\color{rgb(rgba(235, 167, 194)}{\textsf{o}}\color{rgb(238, 189, 209)}{\textsf{.}}$
+<p align=center>
+<img width="550" height="540" alt="Image" src=https://github.com/user-attachments/assets/bf315b69-4cd2-4827-bef8-ea8b36370e4c>
 </p>
 
----
+<p align=center>
+୭ৎ @ 𝑙exi ᵒʳ leo𝑛 ︶︶︶
+</p>
+<p align=center>
+𐙚 ε๑з 18+ ִ $\color{rgb(237, 167, 192)}{\textsf{♡゙}}$ ࣪
+</p>
+<p align=center>
+$\color{rgb(147, 109, 180)}{\textsf{ⓥ}}$ ietnames𝓮ㅤ🍨ㅤ 𓈒݂১ ̣̣♡
+</p>
+<p align=center>
+͜𓈒 ࣪ ᧙ㅤㅤㅤintwc, i'm an adult, dni if discomfy & under 16ㅤㅤ ۪ Ⳋ᧙
+</p>
 
-<p align="center">
-  <a href="https://github.com/branzie">
-    <img width="150" height="150" alt="Image" src="https://github.com/user-attachments/assets/ebad5329-b0ed-47ae-a5ad-33e7ad158982" />
-  </a><a href="https://github.com/xcryingchild">
-    <img width="110" height="150" alt="Image" src="https://github.com/user-attachments/assets/29f52088-2796-4173-a78e-cedac2dacc64" />
-  </a><a href="https://github.com/PorphyroRoyal">
-   <img width="130" height="150" alt="Image" src="https://github.com/user-attachments/assets/b222d31c-776b-4475-9425-0fed689d5956" />
-  </a>
+<p align=center>
+<img width="300" height="230" alt="Image" src="https://github.com/user-attachments/assets/9dac4c70-82f5-4879-978c-29bc704d200e" /> <img width="230" height="240" alt="Image" src="https://github.com/user-attachments/assets/b067bfde-0bc0-48b3-ad56-8049392ba662" />
 </p>
